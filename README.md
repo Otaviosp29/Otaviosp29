@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Otaviosp29
 - 👀 I’m interested in ... basketball 
-- 🌱 I’m currently learning ... mangás
+- 🌱 I’m currently learning ... ser romântico
 - 💞️ I’m looking to collaborate on ...com o meu futuro
 - 📫 How to reach me ...sendo simpático(a)
 
